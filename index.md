@@ -1,3 +1,3 @@
 ## stories
 
-1. [smith's visit to prison](https://saifulabu.github.io/smith_visit_prison)
+1. [ernesto's visit to prison](https://saifulabu.github.io/ernesto_visit_prison)
