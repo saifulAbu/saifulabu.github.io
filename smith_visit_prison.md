@@ -1,3 +1,6 @@
+layout: page
+title: "smiths_prison_visit"
+permalink: /smiths_prison_visit/
 
 ## Smith's visit to prison
 
