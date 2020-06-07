@@ -1,7 +1,3 @@
-layout: page
-title: "smiths_prison_visit"
-permalink: /smiths_prison_visit/
-
 ## Smith's visit to prison
 
 Mr Smith was arrested by the police for the crime he did not commit. He was stopped on his way home from office by the cops and asked to 
