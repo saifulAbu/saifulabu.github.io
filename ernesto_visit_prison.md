@@ -31,3 +31,5 @@ guy - okay now you have to return your phone and we will turn it off. go ahead a
 ernesto copied 3 phone numbers. the middle eastern guy showed him a telephone booth in the police station. the also gave him special one time dress and pair of sandals to smith. the dress and sandals are both made of almost the same material. some african-american guy was on the phone try to reach someone. he seemed to be not able to reach the desired person.
 
 at last ernesto got hold of the phone. he tried reaching a frined after another. the phone on the police station was different. everytime you call someone, they have 30 second prompt.then it rings. strangely, no friend of his receive the call.
+
+he waited for sometime. the middle eastern guy called him to get a photograph. earnesto was worried. he is an immigrant, an event such as an arrest can be devastating for him. 
